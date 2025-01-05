@@ -56,3 +56,29 @@
 * Pre-flight meal at Pepper Lunch
 
 ## New York City
+
+### Day 1
+* Joe's Pizza
+* The Uncommons
+* Chess Forum
+* Washington Square Park
+* Rockerfeller Center
+* St. Patrick's Cathedral
+* Grand Central Terminal
+
+### Day 2
+* Google NYC office
+* Chelsea Market
+* Little Island
+* Natural History Museum
+* Central Park / Belvedere Castle
+* Off Broadway (Drunk Shakespeare)
+
+### Day 3
+* A Taste of Katz, Brooklyn
+* MyssTic Rooms escape room
+* Supposed to visit Brooklyn flea market but it was closed D:
+* Brooklyn Bridge
+* Museum of Modern Art
+* 6th Ave / W 53rd Street
+* Cellar Dog jazz club
