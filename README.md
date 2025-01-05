@@ -72,7 +72,7 @@
 * Little Island
 * Natural History Museum
 * Central Park / Belvedere Castle
-* Off Broadway (Drunk Shakespeare)
+* Off Broadway show (Drunk Shakespeare)
 
 ### Day 3
 * A Taste of Katz, Brooklyn
