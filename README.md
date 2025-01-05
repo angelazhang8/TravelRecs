@@ -80,5 +80,5 @@
 * Supposed to visit Brooklyn flea market but it was closed D:
 * Brooklyn Bridge
 * Museum of Modern Art
-* 6th Ave / W 53rd Street
+* 6th Ave / W 54th Street
 * Cellar Dog jazz club
