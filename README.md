@@ -36,8 +36,8 @@
 
 ### Day 6 - Kyoto
 * Fushimi Inari Taisha (highly recommended)
-* Nanzen-ji
 * Kiyomizu-dera (highly recommended)
+* Nanzen-ji
 * Gion
 * Nishiki market
 
@@ -45,9 +45,14 @@
 * Shinkansen from Kyoto station (got omiyage)
 * Ueno park
 * Akihabara Electric Town (highly recommended)
+* Don Quijote
 
 ### Day 8 - Tokyo
 * Mikasa battleship
 * Supposed to visit a capybara cafe but it was closed :(
+* Dinner at a shabu-shabu restaurant
+
+### Day 9 - flight
+* Pre-flight meal at Pepper Lunch
 
 ## New York City
